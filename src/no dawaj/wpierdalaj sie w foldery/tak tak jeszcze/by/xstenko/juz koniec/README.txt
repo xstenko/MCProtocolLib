@@ -1,0 +1,1 @@
+Powiem tyle, nie dla psa kielbasa debilu masz na necie za darmo jarke wiec wypierdalaj na google zajebany pseudolu.
